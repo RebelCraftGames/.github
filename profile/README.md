@@ -1,5 +1,6 @@
 # Rebel Craft
 Rebel Craft, an official game studio company which publishes immersive experiences on Minecraft & Roblox!
+
 Our plan is to bing brillinat games and amazing servers to the worlds of Minecraft and Roblox!
 
 Links:
