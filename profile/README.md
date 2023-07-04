@@ -4,7 +4,7 @@ Our plan is to bing brillinat games and amazing servers to the worlds of Minecra
 
 Links:
 
-Rebel Craft Official Website: rebelcraft.carrd.co/
+Rebel Craft Official Website: https://rebelcraft.carrd.co/
 
 Discord: https://discord.gg/yMrhfxvkU8
 
