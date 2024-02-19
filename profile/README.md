@@ -14,7 +14,3 @@ Youtube: https://www.youtube.com/@rebelcraft_/
 Twitter: https://twitter.com/RebelCraftGames
 
 Roblox: https://www.roblox.com/groups/32507376/Rebel-Craft#!/about
-
-# Orphan Accounts
-
-https://github.com/Novic-Entertainment
